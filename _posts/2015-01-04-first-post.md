@@ -9,6 +9,7 @@ Just now I watched _Arrival_, an interesting perspective for a science fiction m
 Language determines how we perceive the reality and not the reality itself. 
 Our customs (habits or habitats for that matter) (re-) wires our brains and help 'to improve' perception. 
 <----->
+
 \>-----<
 How aborigines in Africa don't fall for these illusions demonstrates that the languages are not unique in how we perceive reality. 
 Ofcourse, one's lifestyle can be shaped by the language just the other way around but the possible lifestyle will be constrained by the physical reality. 
